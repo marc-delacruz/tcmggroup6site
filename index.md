@@ -27,3 +27,11 @@ Howdy! My name is Marco Baeza and I am a Technology Management student from San 
 Howdy! My name is Mason Ray and I am a technology management major from Houston, TX. I enjoy long hikes and drinking on the beach. When I have some free time in my week, I play video games, cook, and listen to music. My favorite artist currently is Silverstein but my favorite song of all time is "My name is" by eminem. I would say that my favorite type of food would be sushi and my favorite type of drink is water. An interesting fact about me is that I have never broken a bone but I have gotten many stitches. If I won the lottery tomorrow, I would pay off all of my parents debts, my debts, buys some land in the rocky mountains and build a homestead. If I could travel anywhere in the world, I would vist Iceland. 
 
 ![IMG_1550 CR2](https://user-images.githubusercontent.com/89879060/133161381-7aedd968-6a04-4e3f-ae33-d789ac79352c.jpg)
+
+
+
+## Le'Andrew Watson
+Howdy, my name is Le'Andrew Watson and I am a Technology Management major from Somerville, TX. I enjoy playing video games with my friends and drinking with them as well. When I have free time you can usually find me in my room watching movies or asleep. My favorite thing in this world is food and I am always down to try new things! My favorite food is chicken alfredo because of the taste of the alfredo sauce mixed with the chicken. I could honestly eat it everyday for the rest of my life. Sports are another big part of my life. If i am not watching football or basketball, I am usually playing one of the two. I very much enjoy spending time with my friends because they are always there to support and will forever make me laugh. 
+
+![IMG_2210(Edited)](https://user-images.githubusercontent.com/89879383/133179192-7cbe7406-9bc4-4a26-bc91-20dded6754ff.jpg)
+
