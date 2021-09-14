@@ -12,12 +12,16 @@ Howdy! My name is Marc De La Cruz and I am a Technology Management major from Ho
 ![MeinMexico](https://user-images.githubusercontent.com/90568064/133157765-ce9ab5f4-8b36-4fad-9b8b-bfc6b6b2057a.jpeg)
 
 ## Neil Baker
-Howdy, my name is Neil, and I am a technology management major from Colorado Springs, CO. I love me some Aggie football, and I headed to Colorado this past weekend to watch Haynes King have his leg broken in half, and to watch our offense score a grand total of 10 points on a mid-tier Pac 12 team. Fortunately, watching 20+ years of Aggie football will prepare you for dealing with disappointment, so it wasn't as infuriating as one might think. After spending several hours in Denver, I can confirm that CU Boulder fans are by far the worst I've come across, and I was in Baton Rouge for the 50-7 blowout in 2019. I'll leave it at that. Thanks.
+
+
+
+Howdy, my name is Neil, and I am a Technology Management major from Colorado Springs, CO. I love me some Aggie football, and I went to Colorado this past weekend to watch Haynes King get his leg broken in half, and to watch our offense score a grand total of 10 points on a mid-tier Pac 12 team. Fortunately, watching 20+ years of Aggie football will prepare you for dealing with disappointment, so it wasn't as infuriating as one might think. After spending several hours in Denver, I can confirm that CU Boulder fans are by far the worst I've come across, and I was in Baton Rouge for the 50-7 blowout in 2019. I'll leave it at that. Thanks.
+
 
 ![bio](https://user-images.githubusercontent.com/89879388/133159427-2747581a-a20d-44bb-84ac-6659754da8b5.jpeg)
 
 ## Marco Baeza
-Howdy! My name is Marco Baeza and I am a Technology Management student from San Antonio, TX. I enjoy watching sports such as football, basketball, baseball, and soccer. Whenever I have free time I like to go on hikes, go to music festivals, travel, and play basketball. Speaking of basketball I actually tore my ACL playing basketball, which was not fun. I also like to cook. You can’t go wrong with some tacos. My favorite place to go in the summer is Chicago. Here is a picture of me there.
+Howdy! My name is Marco Baeza and I am a Technology Management student from San Antonio, TX. I enjoy watching sports such as football, basketball, baseball, and soccer. Whenever I have free time I like to go on hikes, go to music festivals, travel, and play basketball. Speaking of basketball, I actually tore my ACL while playing, which was not fun. I also like to cook. You can’t go wrong with some tacos. My favorite place to go in the summer is Chicago. Here is a picture of me there.
 ![bio](https://user-images.githubusercontent.com/90434789/133165060-7972b5c4-c4b7-4546-ab90-e7d7095e1acf.jpg)
 
 
