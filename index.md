@@ -3,8 +3,6 @@
 This page introduces the legendary group 6 team members!
 
 
-
-
 ### About Us
 
 ## Marc De La Cruz
