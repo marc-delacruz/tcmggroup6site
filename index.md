@@ -60,5 +60,5 @@ Howdy! My name is Mason Ray and I am a technology management major from Houston,
 ## Le'Andrew Watson
 Howdy, my name is Le'Andrew Watson and I am a Technology Management major from Somerville, TX. I enjoy playing video games with my friends and drinking with them as well. When I have free time you can usually find me in my room watching movies or asleep. My favorite thing in this world is food and I am always down to try new things! My favorite food is chicken alfredo because of the taste of the alfredo sauce mixed with the chicken. I could honestly eat it everyday for the rest of my life. Sports are another big part of my life. If i am not watching football or basketball, I am usually playing one of the two. I very much enjoy spending time with my friends because they are always there to support and will forever make me laugh. 
 
-(![IMG_2210(Edited)](https://user-images.githubusercontent.com/89879383/133179192-7cbe7406-9bc4-4a26-bc91-20dded6754ff.jpg)
+![IMG_2210(Edited)](https://user-images.githubusercontent.com/89879383/133179192-7cbe7406-9bc4-4a26-bc91-20dded6754ff.jpg)
 
